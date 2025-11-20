@@ -1,2 +1,7 @@
 # eberconazole-cream
-eberconazole cream
+Eberconazole Cream is a broad-spectrum antifungal medication used to treat a wide range of fungal skin infections. Known for its strong activity against dermatophytes, yeasts, and moulds, eberconazole belongs to the imidazole class of antifungal agents. It works by inhibiting fungal cell membrane synthesis, effectively stopping the growth and spread of infection.
+
+This cream is especially effective for conditions like tinea infections (ringworm, jock itch, athlete’s foot), pityriasis versicolor, and fungal infections affecting areas such as the groin, feet, neck, and body folds. One of the key advantages of eberconazole is its anti-inflammatory action, which helps reduce redness, itching, swelling, and irritation commonly associated with fungal infections. This dual action makes it more comfortable and faster-acting compared to many standard antifungal creams.
+
+Eberconazole Cream is easy to apply, well-tolerated, and suitable for regular use as prescribed by a healthcare professional. Most patients notice improvement in itching and irritation within the first few days of treatment, while complete fungal control requires consistent application for the full recommended duration. Dermatologists often prefer eberconazole for its powerful antifungal effect, low irritation potential, and reliable clinical results. 
+https://www.aslifesciences.com/eberconazole-cream-manufacturer-and-supplier/ 
